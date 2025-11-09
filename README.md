@@ -34,3 +34,12 @@
 
 
 <img width="1290" height="2796" alt="IMG_0666" src="https://github.com/user-attachments/assets/1f6fc29f-e32f-43f5-8a87-3c0c2c0d6cf0" />
+
+
+
+
+
+
+# Hi brother hika
+
+![IMG_1605](https://github.com/user-attachments/assets/c671f213-cbc3-4f08-abcd-32a435771b21)
