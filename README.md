@@ -52,3 +52,12 @@
  
 
 ![IMG_1605](https://github.com/user-attachments/assets/c671f213-cbc3-4f08-abcd-32a435771b21)
+
+
+
+
+
+WHO DREW THAT IM SCARED (i drew meiko in red pen)
+
+![IMG_2130](https://github.com/user-attachments/assets/80dd054d-c181-4a08-a5d1-7ff3f3e0726b)
+![IMG_2129](https://github.com/user-attachments/assets/f15c7d9d-dc3f-47ca-ac6c-540c277072ae)
