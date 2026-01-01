@@ -1,3 +1,16 @@
+
+# guys its on fire . HAPPY 2026!!
+
+
+
+![IMG_2819](https://github.com/user-attachments/assets/2067876b-90d8-40de-ae11-0c8c7ee884f2)
+
+
+
+
+
+
+
 # Gift for mafufu
 
 ![IMG_1630](https://github.com/user-attachments/assets/001159fa-ecb8-4760-a365-ebb1980b6842)
