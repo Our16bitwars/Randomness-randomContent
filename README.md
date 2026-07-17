@@ -1,4 +1,10 @@
 
+
+
+# "Gomen...." "AKITO WHERE ARE YO-"
+<img width="1398" height="645" alt="IMG_7100" src="https://github.com/user-attachments/assets/24a030f0-4af3-4df2-a465-4c5ec9f3f075" />
+
+
 # guys its on fire . HAPPY 2026!!
 
 
